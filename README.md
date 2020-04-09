@@ -1,1 +1,1 @@
-# -pratt-savi-810-2020-03-lesson_07
+# please wait to fork and clone until next class start time
